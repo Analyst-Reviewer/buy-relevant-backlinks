@@ -23,8 +23,8 @@ For the best results, we recommend using [Adsy](https://ref.adsy.com/?ref=referr
 - **User-friendly interface** – making it easy to find and secure links.
 - **Strict quality control** – guaranteeing you receive only premium backlinks.
 - **Fast indexing** – helping your pages rank in search results within days.
-<a href="https://github.com/user-attachments/assets/e31b6d86-d73e-43d5-a582-bbe416e1fd5e">
-    <img src="https://github.com/user-attachments/assets/e31b6d86-d73e-43d5-a582-bbe416e1fd5e" alt="Adsy Screenshot">
+<a href="https://github.com/user-attachments/assets/32af3e1e-0928-42ab-a079-c455446dc9dc">
+    <img src="https://github.com/user-attachments/assets/32af3e1e-0928-42ab-a079-c455446dc9dc" alt="Image">
 </a>
 
 ## Key Factors for Choosing the Right Backlinks
